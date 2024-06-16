@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...AI Content Creation and Web3 Content creation and distribution
 - 📫 How to reach me ...email bruno@thaofi.com
 - 😄 Pronouns: ...Bruno
-- ⚡ Fun fact: ...i am French African and live currently in the US
+- ⚡ Fun fact: ...i am French African Reggae Artist Anguile and I live currently in the US
 
 <!---
 BrunoAnguile/BrunoAnguile is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
